@@ -8,3 +8,5 @@ https://drive.google.com/file/d/1NsS2hL6jYJEdgaY0IFvo6WdO5PZohKSO/view?usp=share
 Conker's Bad Fur Day
 https://drive.google.com/file/d/1sU4N-5OQcFI9DTrrKscnoMNGc5LaVcVI/view?usp=share_link
 Roblox 64
+https://drive.google.com/file/d/1m2fCP67Ztqno0wnnwabp-2dRFmF059XX/view?usp=share_link
+Crash Bandicoot
