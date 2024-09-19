@@ -12,3 +12,5 @@ https://drive.google.com/file/d/1m2fCP67Ztqno0wnnwabp-2dRFmF059XX/view?usp=share
 Crash Bandicoot
 https://drive.google.com/file/d/1XoQgdbIxaqYgeDEUxQy68N1WE--VYEZw/view?usp=share_link
 Gran Turismo
+https://drive.google.com/file/d/1TCVCUPt8FBRsXmSS8fBM52ZaBQSgFsVT/view?usp=share_link
+Spyro The Dragon
