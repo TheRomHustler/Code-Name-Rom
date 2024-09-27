@@ -20,5 +20,3 @@ https://drive.google.com/file/d/1Vp27WVdwttsjZPO1kugSp2ppr-jFuy17/view?usp=share
 Sonic Rush
 https://drive.google.com/file/d/1WKZmmB_jhu-sH1AFRAPqnrkeDzyAssK3/view?usp=share_link
 Spider-Man Shattered Demensions
-https://wish.co.tobuy.us
-Doge Unblocker
