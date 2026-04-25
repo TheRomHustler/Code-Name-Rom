@@ -20,3 +20,7 @@ https://drive.google.com/file/d/1Vp27WVdwttsjZPO1kugSp2ppr-jFuy17/view?usp=share
 Sonic Rush
 https://drive.google.com/file/d/1WKZmmB_jhu-sH1AFRAPqnrkeDzyAssK3/view?usp=share_link
 Spider-Man Shattered Demensions
+
+180 STARS
+VALUE:FFFF FFFF FFFF FFFF FFFF FFFF FFFF FFFF FFFF FFFF FFFF FFFF FFFF
+ADDRESS:8120770C 8120770E 81207710 81207712 81207714 81207716 81207718 8120771A FFFF 8120771C 8120771E 81207720 81207722 81207724
